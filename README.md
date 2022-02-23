@@ -1,4 +1,4 @@
-# Magnolya Tarifi
+# Magnolia Tarifi
 ![Magnolia](https://i4.hurimg.com/i/hurriyet/75/750x422/5e4665840f25442fb4007487.jpg)
 ## Malzemeler
 * 5 su bardağı süt
