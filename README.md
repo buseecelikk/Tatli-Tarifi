@@ -19,4 +19,4 @@
 6. Fındıkları da rondodan geçirip, bebe bisküvilerinin içine karıştırın.
 7. Kuplara bisküvi fındık karışımınızdan, muhallebinizden ve meyvelerden koyun. Sıralaması, miktarları tamamen sizin zevkinize kalmış.
 8. Magnolianın bu sunumu için; karadut, çilek ve fındık kullanıldı.
-### Afiyet olsun...# Tatli-Tarifi
+### Afiyet olsun...
